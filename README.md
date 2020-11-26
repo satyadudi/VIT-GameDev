@@ -1,2 +1,2 @@
 # VIT-GameDev
-Exam question will be posted soon
+Exam question will be posted on 26 Nov 2020 @ 1.30pm
